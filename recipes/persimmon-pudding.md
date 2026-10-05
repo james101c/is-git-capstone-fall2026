@@ -3,6 +3,7 @@ Persimmon Puddin
     (best if from grandma's tree)
 2 cups butter, softened
 2 eggs slightly beaten
+    (best if from grandma's hen house)
 2 cups sugar
 1 cup all-purpose flour
 1/2 tsp baking powder
