@@ -16,7 +16,7 @@ salt to taste
 Mix pulp, butter, eggs, and sugar in a large bowl. In a separate bowl, 
 combine flour, baking powder, baking soda, cinnamon, and salt. Gradually 
 add the dry ingredients to the wet mixture, stirring until well combined.
-add dry ingredients to the wet mixture, stirring until well combined. 
+Add dry ingredients to the wet mixture, stirring until well combined. 
 Pour the batter into a greased baking dish and spread it evenly. Dot the 
 top with margarine or butter. 
 
