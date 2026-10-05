@@ -1,7 +1,8 @@
-Persimmon Puddin
+Persimmon Pudding
 2 cups persimmon pulp (from about 4-5 ripe persimmons)      
     (best if from grandma's tree)
 2 cups butter, softened
+    (best if from grandma's cow)
 2 eggs slightly beaten
     (best if from grandma's hen house)
 2 cups sugar
